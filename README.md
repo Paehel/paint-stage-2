@@ -1,0 +1,1 @@
+# paint-stage-2
